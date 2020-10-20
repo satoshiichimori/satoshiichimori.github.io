@@ -1,0 +1,1 @@
+# satoshiichimori.github.io
